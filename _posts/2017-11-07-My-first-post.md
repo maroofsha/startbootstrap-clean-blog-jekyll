@@ -4,7 +4,7 @@ title:      "My first post"
 subtitle:   "Learing to write posts."
 date:       2017-11-07 12:00:00
 author:     "MaroofSha"
-header-img: "http://i66.tinypic.com/nnsjg8.jpg"
+header-img: "img/post-bg-07.jpg"
 ---
 
 <p> 
