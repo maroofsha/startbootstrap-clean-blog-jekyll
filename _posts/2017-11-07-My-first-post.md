@@ -7,23 +7,18 @@ author:     "MaroofSha"
 header-img: "img/post-bg-07.jpg"
 ---
 
+
+
+ 
+<h1>HOW TO MAKE FRESH ROSE WATER AT HOME</h1>
 <p> 
-
-    Home 
-
-Categories
-
-    About Me Contact privacy policy Terms 
-
-Wednesday, 18 January 2017
-HOW TO MAKE FRESH ROSE WATER AT HOME
 Rose water is known for ages for its anti inflammatory & hydrating properties. It is one of the best natural toners available for our skin. Fresh rose water can be prepared at home using rose petals & distilled water.
  Rose water is suited for all skin types, from sensitive, aging, normal to acne prone skin.
 
-Homemade fresh rose water
+<h2>Homemade fresh rose water</h2>
 
 
-THINGS NEEDED
+<h3>THINGS NEEDED</h3>
 
 1. Rose petals 
 2. Distilled water
