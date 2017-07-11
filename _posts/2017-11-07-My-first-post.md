@@ -29,18 +29,18 @@ Rose water is known for ages for its anti inflammatory & hydrating properties. I
 7. Sterilized storage bottles<br/></p>
 
 <h3>MAKING THE ROSE WATER<h3><br/>
-<p>
-STEP 1: Add distilled water to the 1/4 of the stainless steel pot.
-STEP 2: Add sufficient rose petals.
-STEP 3: Place a stainless steel wok ring inside the water pot.
-STEP 4: Place the glass bowl on the wok ring.
-STEP 5: Close the pot lid upside down.
-STEP 6: Heat the water until steam starts comming and let it simmer.
-STEP 7: Place ice cubes on the top of the pot lid.
-STEP 8: Simmer for 8 mins and switch off the stove.
-STEP 9: Open the lid and remove the glass bowl filled with water.
-STEP 10: This is the fresh rose water we made. Cool it & bottle it & store it in the fridge.
 
+<p>STEP 1: Add distilled water to the 1/4 of the stainless steel pot.<br/>
+STEP 2: Add sufficient rose petals.<br/>
+STEP 3: Place a stainless steel wok ring inside the water pot.<br/>
+STEP 4: Place the glass bowl on the wok ring.<br/>
+STEP 5: Close the pot lid upside down.<br/>
+STEP 6: Heat the water until steam starts comming and let it simmer.<br/>
+STEP 7: Place ice cubes on the top of the pot lid.<br/>
+STEP 8: Simmer for 8 mins and switch off the stove.<br/>
+STEP 9: Open the lid and remove the glass bowl filled with water.<br/>
+STEP 10: This is the fresh rose water we made. Cool it & bottle it & store it in the fridge.<br/>
+</p><p>
 This rose water can be used as a cleanser, toner, hydrating mist & also in making creams, lotions & face masks. 
 This water does not contain preservative, store it in the refrigerator.</p>
 
