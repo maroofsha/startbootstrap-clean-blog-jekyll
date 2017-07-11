@@ -1,6 +1,6 @@
 ---
 layout:     post
-title:      "My first post"
+title:      "Making Rosewater at home"
 subtitle:   "Learing to write posts."
 date:       2017-11-07 12:00:00
 author:     "MaroofSha"
