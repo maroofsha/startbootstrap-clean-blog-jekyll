@@ -18,8 +18,7 @@ Rose water is known for ages for its anti inflammatory & hydrating properties. I
 <h2>Homemade fresh rose water</h2><br/>
 
 
-![alt text](http://https://3.bp.blogspot.com/--qoYsUpux6Y/WPHvmGYVXII/AAAAAAAAC-8/in74Fl9B2xkXO7RlR411EFGiQhlfXcAdwCLcB/s1600/rose.png)
-
+![alt tag](https://3.bp.blogspot.com/--qoYsUpux6Y/WPHvmGYVXII/AAAAAAAAC-8/in74Fl9B2xkXO7RlR411EFGiQhlfXcAdwCLcB/s1600/rose.png)
 
 
 <h3>THINGS NEEDED</h3><br/>
